@@ -1,2 +1,1 @@
-![](https://tenor.com/pt-BR/view/cool-fun-white-cat-dance-cool-and-fun-times-gif-16435335956387921912)
-
+### Ola o pai é bom nos script slk, o pai se chama **kadu**
